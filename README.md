@@ -2,4 +2,4 @@
 
 ## ACCIDENT ANALYSIS
 
-![accident](https://github.com/user-attachments/assets/002bf0f6-327a-42fd-bc87-4c841364e9c7)
+![Picture277](https://github.com/user-attachments/assets/a0917abc-161f-4691-85c9-4f914b785a7c)
